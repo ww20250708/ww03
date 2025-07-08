@@ -10,4 +10,4 @@
 
 本站提供多种优质影视资源，支持高清流畅观看，满足不同用户的观影需求。每个类别都有最新的更新，确保您随时享受最新、最热的影片内容。无需注册，点击即播，尽享纯净的影视体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ww20250708/ww03 ）</span>
